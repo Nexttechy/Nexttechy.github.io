@@ -1,1 +1,0 @@
-# Nexttechy.github.io
